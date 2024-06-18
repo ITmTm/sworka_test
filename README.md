@@ -4,6 +4,8 @@
 <hr>
 
 
+![Screenshot_1](https://github.com/ITmTm/sworka_test/assets/98873757/bd722181-9006-4e36-ab29-d50a886513bc)
+
 
 <hr>
 
